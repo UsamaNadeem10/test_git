@@ -3,4 +3,4 @@
 ## Heighly motivated
 ## GitHub ni chal rehi
 
-## Kch b ni ho raha
+## Kch b ni ho rahaa
